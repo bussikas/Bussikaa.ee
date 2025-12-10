@@ -1,2 +1,0 @@
-# Bussikaa.ee
-sõiduplaanid
